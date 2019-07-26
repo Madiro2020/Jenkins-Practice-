@@ -9,3 +9,6 @@ anenge ma1 chaiwo
 
 Asi chii nhayi?
 
+kurasika hakutani
+
+
